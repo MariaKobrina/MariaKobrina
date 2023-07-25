@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MariaKobrina
+- 👋 Hi, I’m @Maria
 - 👀 I’m interested in design
 - 🌱 I’m currently learning UX/UI Design
 
